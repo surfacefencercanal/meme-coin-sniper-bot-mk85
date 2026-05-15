@@ -1,4 +1,4 @@
-# 
+# updated meme coin sniper bot | auto-sell + blockchain-scanning offers the most advanced meme coin sniper bot, with auto-sell and blockchain-scanning. Ideal for professional MEV
 
 
 
